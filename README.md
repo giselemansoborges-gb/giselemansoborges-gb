@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Gisele Borges Manso 😁
+## Bem-vindo(a) ao perfil da Gisele Borges Manso ⚡💻🌐
 
  <div>
    <a href="https://github.com/giselemansoborges-gb">
